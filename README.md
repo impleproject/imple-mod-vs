@@ -11,3 +11,7 @@
 # It doesn't mean I don't care
 # It just looks like I don't care
 # Because my emotions have been sanded off
+
+I'm someone you liked before. Now I'm a garbage. This is me - making something to impress you and make you remember about me.
+
+Lyrics from Thundercat, Tame Impala - No More Lies (Lyrics from outro of the song).
