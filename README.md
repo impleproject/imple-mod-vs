@@ -15,3 +15,7 @@
 I'm someone you liked before. Now I'm a garbage. This is me - making something to impress you and make you remember about me.
 
 Lyrics from Thundercat, Tame Impala - No More Lies (Lyrics from outro of the song).
+
+*L'p qrw Oxplqdluh.  L zrq'w jlyh brx dqb foxhv wkdw zloo ohdg brx vwudljkw wr ph.  Nqrz wkdw pb qdph lv... Ixqqb, ehfdxvh Khquln Vdeurh.  Grq'w vhdufk iru wklv qdph rq wkh Lqwhuqhw - brx zloo ilqg d ilfwlrqdo fkdudfwhu.  Hadfwob zkdw brx kdyh hashulhqfhg lq suhylrxv bhduv.  Li wkdw'v qrw hqrxjk, jhw uhdgb iru dqrwkhu grvh ri wlsv wkdw zloo dsshdu vrrq.  Krzhyhu, li surylglqj brx zlwk wklv lqirupdwlrq khoshg brx xqghuvwdqg zkr L dp, sohdvh zulwh "L xqghuvwdqg" gluhfwob wr brxu Oxplqdluh dffrxqw.  Hyhubwklqj zloo eh fohdu dqg pb wdvn zloo eh frpsohwhg.  Kdyh d qlfh gdb.*
+
+**(EN-EN !)**
